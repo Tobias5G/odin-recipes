@@ -1,0 +1,1 @@
+Today is December the 8th Friday 7:04, I am at the start of my web dev journey and am half way through grade 10.
